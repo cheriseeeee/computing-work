@@ -3,5 +3,5 @@
 i like to 
  * eat
  * sleep
- * do nothing
+ * do nothing +.*.｡
 
