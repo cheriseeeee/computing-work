@@ -1,2 +1,2 @@
-# * home alone *
+home alone
 
