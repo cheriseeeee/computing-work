@@ -4,4 +4,6 @@ i like to
  * eat
  * sleep
  * do nothing +.*.｡
-
+netlix 
+do tiktoks 
+read books 
